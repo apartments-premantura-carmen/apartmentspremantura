@@ -10,6 +10,6 @@ Guests can enjoy:
 
 If you are looking for a comfortable **apartments villa in Premantura**, explore more here:
 
-👉 If you are looking for a comfortable [Apartments Premantura villa](https://apartmentspremantura.com), explore more here.
+👉 If you are looking for a comfortable [Apartments Premantura Carmen](https://apartmentspremantura.com), explore more here.
 
 Discover the beauty of **southern Istria** and enjoy an unforgettable stay on the **Adriatic coast**.
